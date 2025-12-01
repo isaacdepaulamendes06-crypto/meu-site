@@ -1,0 +1,1 @@
+Para o aside direito, os itens escolhidos foram o posts recentes, eventos & lives, Galeria mini, avalição/depoimento e contato. 
